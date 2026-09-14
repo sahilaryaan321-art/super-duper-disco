@@ -1,2 +1,4 @@
 # CONVO-DEVIL
 THIS SERVER MADE BY ʬ-ɭɭCʋtɘ Ayanɭɭ-ʬ FOR MASEENGER FYT
+bash
+hsabhsab
